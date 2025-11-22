@@ -94,7 +94,8 @@ Gestion complète pour école privée.
 
 ## 📫 Me contacter
 
-📧 Email : *(ajoute ton email ici)*  
+📧 Email : *proguad224@gmail.com*  
+📧 Email : *gbilimouz6@gmail.com* 
 🌍 GitHub : **github.com/Gbilimou22**  
 
 ---
