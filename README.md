@@ -56,8 +56,8 @@ Toujours à l'affût des nouvelles technologies et frameworks pour transformer d
 ## 📫 Me contacter
 📧 Email : *proguad224@gmail.com*  
 🌍 GitHub : **github.com/Gbilimou22** 
-- **WhatsApp :** +224 624 92 95 47  **
-- **LinkedIn :** www.linkedin.com/in/joseph-gbilimou-081084397**
+- **WhatsApp :** +224 624 92 95 47  
+- **LinkedIn :** www.linkedin.com/in/joseph-gbilimou-081084397
 
 ---
 
